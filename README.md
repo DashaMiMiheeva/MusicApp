@@ -34,7 +34,7 @@
 
 ## 🎬 Видео демонстрация
 
-
+[Смотреть видео демо](https://drive.google.com/file/d/1ClHKxK7Zn2hZc6hy6hSwUnhJCXUKXHV4/view?usp=sharing)
 
 ---
 
